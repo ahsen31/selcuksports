@@ -4,7 +4,7 @@
 📢 **Telegram Kanalımız:** [👉 Katıl ve Canlı Maçları Kaçırma!](https://t.me/+NEI2Gjb_GtEyZTli)  
 🐦 **UYGULAMAMIZ İNDİR APK:** [👉 Takip Et ve Güncel Yayınları Öğren!](https://bit.ly/m/netvgoldv9)  
 
-[![Canlı Maç İzle](https://i.ibb.co/Z1wzw67Q/750x200-taraftarium.jpg)](http://www.taraftar.site)  
+[![Canlı Maç İzle](https://i.ibb.co/Z1wzw67Q/750x200-taraftarium.jpg)]([https://bit.ly/m/netvgoldv9]  
 
 ---
 
@@ -20,7 +20,7 @@
 ✅ **Yüksek Kalite 1080p - 4K Yayınlar** 🖥️  
 ✅ **Türkçe Spikerli ve Orijinal Yayın Seçenekleri** 🎙️  
 
-📺 **Maçı İzlemek İçin:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](http://www.taraftar.site)
+📺 **Maçı İzlemek İçin:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](https://bit.ly/m/netvgoldv9)
 
 ---
 
@@ -35,7 +35,7 @@
 📌 **Türkiye Kupası, Avrupa Kupaları, Dünya Kupası Maçlarını Canlı İzle**  
 🌍 **Premier Lig, Bundesliga, La Liga, Serie A Canlı Maç İzle**  
 
-📌 **Tüm spor karşılaşmaları için hemen tıklayın:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](http://www.taraftar.site)
+📌 **Tüm spor karşılaşmaları için hemen tıklayın:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](https://bit.ly/m/netvgoldv9)
 
 ---
 
@@ -44,7 +44,7 @@
 🏅 **Tüm liglerden canlı maçlar ve güncel yayın linkleri için bizi takip edin!**
 
 📢 **Maç saatinden önce güncellenen linklerimizle yayını kaçırmayın!**  
-📺 **Galatasaray - Fenerbahçe maçını canlı izlemek için hemen ziyaret edin:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](http://www.taraftar.site)  
+📺 **Galatasaray - Fenerbahçe maçını canlı izlemek için hemen ziyaret edin:** [👉 MAÇ SİTESİ İÇİN TIKLAYIN](https://bit.ly/m/netvgoldv9)  
 
 🌟 **HD kalitede donmadan maç izlemek için hemen bağlanın!** 🎉
 
