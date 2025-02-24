@@ -1,4 +1,4 @@
-# 🎇 **[Taraftarium24 | Galatasaray 🏟️ Fenerbahçe Canlı Maç İzle | Taraftarium | Canlı Maç İzle | Derbi İzle](http://www.taraftar.site)** 🎯🔥
+# 🎇 **[Taraftarium24 | Galatasaray 🏟️ Fenerbahçe Canlı Maç İzle | Taraftarium | Canlı Maç İzle | Derbi İzle](https://bit.ly/m/netvgoldv9)** 🎯🔥
 
 ## 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 📢 **Telegram Kanalımız:** [👉 Katıl ve Canlı Maçları Kaçırma!](https://t.me/+NEI2Gjb_GtEyZTli)  
